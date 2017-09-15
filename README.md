@@ -1,2 +1,4 @@
 # petal
-There are something mysterious
+There are something mysterious.   
+Guess I like what.        
+Everything or nothing.   
